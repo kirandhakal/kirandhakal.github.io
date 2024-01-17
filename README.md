@@ -1,1 +1,1 @@
-# kirandhakal.github.io/cv/
+# kirandhakal.github.io
